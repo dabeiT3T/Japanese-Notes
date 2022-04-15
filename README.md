@@ -1,1 +1,1 @@
-# Japanese-Primary-Reciting
+# Japanese-Notes
